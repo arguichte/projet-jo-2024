@@ -1,3 +1,0 @@
-# projet-jo-2024
-PROJET SITE WEB JO2024 
-
